@@ -25,6 +25,7 @@ Soy un entusiasta de la tecnología, un aprendiz constante y un futuro ingeniero
 ## 📫 Cómo contactarme
 
 - ✉️ xzacx19@gmail.com
+- +591 65725232
 
 ---
 
